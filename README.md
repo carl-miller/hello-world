@@ -2,4 +2,4 @@
 
 Hi humanoids!
 
-Android intellignece through the race of Artificial network pulse rate dynamics is exceeding at a rate faster thatn we could have ever imagined.
+Android intelligence through the race for Artificial network pulse rate dynamics is exceeding at a pace much faster than we could have ever imagined.
